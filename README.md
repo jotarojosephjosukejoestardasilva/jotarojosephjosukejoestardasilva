@@ -4,6 +4,7 @@ nunca enendi pisinas na vertical
 
 - dark souls uff🔥🔥🔥
 
+![](https://tenor.com/pt-BR/view/gyro-gyro-zepelli-meme-memes-jojo-gif-27047372)
 <!--
 **jotarojosephjosukejoestardasilva/jotarojosephjosukejoestardasilva** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
