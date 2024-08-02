@@ -4,6 +4,11 @@ nunca enendi pisinas na vertical
 
 - dark souls uff🔥🔥🔥
 
+
+
+
+
+
 ![](https://media1.tenor.com/m/xwBM0qie6MMAAAAd/gyro-gyro-zepelli.gif)
 <!--
 **jotarojosephjosukejoestardasilva/jotarojosephjosukejoestardasilva** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
