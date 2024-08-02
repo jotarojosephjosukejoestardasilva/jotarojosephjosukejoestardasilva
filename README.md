@@ -2,7 +2,7 @@
 
 nunca enendi pisinas na vertical
 
--dark souls uff🔥🔥🔥
+- dark souls uff🔥🔥🔥
 
 <!--
 **jotarojosephjosukejoestardasilva/jotarojosephjosukejoestardasilva** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
